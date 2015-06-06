@@ -3,3 +3,5 @@
 And I like rock n' roll.
 
 Also pop, jazz, piano.
+
+Play guitar.
