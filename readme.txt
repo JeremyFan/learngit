@@ -6,4 +6,4 @@ Also pop, jazz, piano.
 
 Play guitar.
 
-Rock n' roll save my life.
+Rock n' roll saves my life.
